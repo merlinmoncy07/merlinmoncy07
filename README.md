@@ -13,7 +13,7 @@
 
 - 📫 How to reach me merlinmoncy07k@gmail.com
 
-- ⚡ Fun fact :- Love to Explore
+- ⚡ Fun fact :- Love to dance,Listening to music 
 
 <br>
 
