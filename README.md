@@ -4,7 +4,7 @@
 <br>
 <br>
 
-<p><img align="center" src="https://i.pinimg.com/originals/e4/92/66/e49266b020eb9e125f4bc87503414444.gif" alt="adam-pw" /></p>
+<p><img align="center" src="https://cdn.dribbble.com/users/542979/screenshots/3000076/sarah-working-on-computer.gif" alt="adam-pw" /></p>
 <br>
 <br>
 
