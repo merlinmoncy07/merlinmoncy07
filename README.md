@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning master of computer application
 
-- 📫 How to reach me merlinmoncy07k@gmail.com
+- 📫 How to reach me merlinmoncy07@gmail.com
 
 - ⚡ Fun fact :- Love to dance,Listening to music 
 
